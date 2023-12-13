@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Artificial Intelligence**
 
-- 📫 How to reach me **Frzansari20@gmail.com**
+- 📫 Connect with me **Frzansari20@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
